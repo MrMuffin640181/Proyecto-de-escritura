@@ -19,7 +19,7 @@ Brainstorm sobre las novelas.
 + La historia va sobre Anthon, un chico que es un mestizo entre una ángel y un demonio, y a raíz de ello es incapaz de usar los regalos. La meta de Anthon en esta vida es encontrar a sus padres, y según ha escuchado, ambos son parte de la corte celestial por lo cual decide acudir al purgatorio y buscar su ascenso a la corte para conocerlos.
 
 **Characters**
-**1. Anthon.** 
+1. **Anthon.** 
  
 + Edad: ¿16?
  
