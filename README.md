@@ -1,4 +1,4 @@
-# Proyecto-de-escritura
+# Proyecto de escritura
 Brainstorm sobre las novelas.
 
 # Soularium (Nombre provisional) [GABO]
