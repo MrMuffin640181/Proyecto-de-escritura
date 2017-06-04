@@ -4,7 +4,6 @@ Brainstorm sobre las novelas.
 ### Soularium (Nombre provisional) [GABO]
 
 + Futuro donde el cielo y el infierno se fundieron sobre la tierra, creando el Olimpo (Provisional), un lugar donde ángeles, demonios y humanos conviven en armonía. 
-
 + God, al sentirse amenazado por sus hermanos (Otros dioses), crea un plan de 400 siglos donde conseguirá un grupo capaz de hacerle frente a cualquier dios. Crea los tesoros divinos.
 
 + Los humanos reciben la alquimia del alma, que no es más que la capacidad de comprender los flujos de energía sobre el alma, siendo amos de la vida y la muerte.
