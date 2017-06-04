@@ -21,8 +21,8 @@ Brainstorm sobre las novelas.
 **Characters**
 1. Anthon. 
  
- Edad: ¿16?
++ Edad: ¿16?
  
- Especialidad: Ninguna.
++ Especialidad: Ninguna.
  
- Caracteristicas: 1.7 m de estatura, piel blanca, complexión atetletica, cabello negro
++ Caracteristicas: 1.7 m de estatura, piel blanca, complexión atetletica, cabello negro
